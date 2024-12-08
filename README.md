@@ -36,6 +36,8 @@
 
 [🔴 **点击这里，体验“错误翻译”！**](https://webtinq.nl/ccp-glory)
 
+Super Cute Rubber Duck - Colorful Bathroom Toy, Floating Duck for Bathtub, Kids' Gift, High-Quality Eco-Friendly Material, Waterproof & Durable, Creative Cartoon Bath Duck
+Superleuke Badeend - Kleurrijk Badkamerspeelgoed, Drijvende Eend voor Badkuip, Kindercadeau, Hoogwaardig Milieuvriendelijk Materiaal, Waterdicht & Duurzaam, Creatieve Cartoon Badeend
 ---
 
 
